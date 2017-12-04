@@ -5,5 +5,3 @@
 1. I have one dog 
 2. I know two programming languages 
 3. Favorite dessert is ice cream 
-
-
