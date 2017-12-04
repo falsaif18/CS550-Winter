@@ -1,6 +1,6 @@
 #__Faisal's Crisp Quiz__
 
-![Crisp](https://www.google.com/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=&url=https%3A%2F%2Ffineartamerica.com%2Ffeatured%2F1-crisp-fall-day-sara-kinney.html&psig=AOvVaw0tqIbtWugHTwtgxca2JrBK&ust=1512479611298653)
+![Crisp](https://orig00.deviantart.net/6008/f/2011/005/0/9/crisp_winter_day_by_nitrok-d36hrch.jpg)
 
 1. I have one dog 
 2. I know two programming languages 
